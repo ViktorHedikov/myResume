@@ -6,3 +6,4 @@ E-mail	gedikovva@gmail.com
 Социальные сети	LinkedIn, Facebook
 Место проживания	г. Каменское
 Гражданство	Украинское
+:)
